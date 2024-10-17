@@ -1,0 +1,2 @@
+# Teripang
+Baikbaik saja
